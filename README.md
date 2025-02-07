@@ -1,4 +1,4 @@
-# Happy Teddy Day
+# Happy Teddy Day 🧸
 
 ## Table of Contents
 
